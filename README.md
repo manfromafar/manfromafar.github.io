@@ -1,1 +1,0 @@
-# manfromafar.github.io
